@@ -235,4 +235,4 @@ Rome: Total War is available as a complete free version with all features and up
 Download Rome: Total War today and begin your journey to conquer the ancient world! Experience the thrill of strategy and warfare like never before!
 
 ---
-**Last updated:** 2026-10-19 11:35:07 UTC
+**Last updated:** 2026-10-19 17:58:04 UTC
